@@ -1,4 +1,4 @@
-#  
+#  stealth Script for oil empire is the best oil empire Script, featuring invisibility and instant win. Safe and powerful for all your needs.
 
 
 
